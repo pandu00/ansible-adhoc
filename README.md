@@ -1,1 +1,1 @@
-####----- Authour: Pandu Karibandi---#####
+####----- Author: Pandu Karibandi---#####
